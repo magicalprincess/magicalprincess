@@ -26,6 +26,6 @@ LA PEACE SQUAD
  <a href="https://github.com/spring-fever">Aero</a>  <a href="https://github.com/starryscreamer">Kal</a> <a href="https://github.com/CAPTAINHORROS">Ollie</a> 
 
 MY GOAT :
-<a href="https://github.com/Timebattle">Cody</a> Bye
+<a href="https://github.com/Timebattle">Cody</a> WADDUP
 
 ︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵
