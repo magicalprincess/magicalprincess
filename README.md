@@ -21,8 +21,11 @@ $\color{#FCA0DF}{\textsf{hai , im zix !}}$ [strawpage](https://zixzixzix.straw.p
 
 <img align="center" height="25" width="25" src="https://64.media.tumblr.com/8b1b4ee64d93398a2ef87a24d2712928/1e9ba0e90a2a12e6-17/s75x75_c1/70afc000d030dbf0e7b4fc8ddd7e9beca80d7cf3.gifv"> $\color{#0571DD}{\textsf{come cud with me anytime and bmf!}}$  <img align="center" height="25" width="35" src="https://64.media.tumblr.com/4259a56f8b87560a32d6ba799481c0eb/07d3e658f8efc25f-89/s75x75_c1/4fd7eae6be54fff985be6f83dbca5b2a017b6261.gifv"> 
 
- <a href="https://github.com/spring-fever">Aero</a> 
+LA PEACE SQUAD
 
-@Timebattle Dats unc
+ <a href="https://github.com/spring-fever">Aero</a>  <a href="https://github.com/starryscreamer">Kal</a> <a href="https://github.com/CAPTAINHORROS">Ollie</a> 
+
+MY GOAT :
+<a href="https://github.com/Timebattle">Cody</a> Bye
 
 ︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵
